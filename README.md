@@ -1,0 +1,1 @@
+# Prvnihodnocenastranka-Adofai
